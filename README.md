@@ -49,13 +49,13 @@ Projetos desenvolvidos durante o curso:
 
 # 📫 Contato
 
-📧 E-mail: seuemail@email.com
+📧 E-mail: kauanbarros0008@gmail.com
 
 💼 LinkedIn:
-https://linkedin.com/in/seuusuario
+https://linkedin.com/in/kauannoleto
 
 📷 Instagram:
-https://instagram.com/seuusuario
+https://instagram.com/nxkauan_
 
 ---
 
